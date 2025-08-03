@@ -1,4 +1,4 @@
-## Hi there 👋
+*In the world, many men and women, many children both deaf and impaired are cut off from all communication, strangers amongst their brethren, wounded by those they love. May the Lord accompany them so that their hands and their eyes become a sign of reconciliation.*
 
 <!--
 **laniakea677/laniakea677** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
